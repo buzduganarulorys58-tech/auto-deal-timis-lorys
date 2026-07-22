@@ -109,3 +109,10 @@ margin-top:40px;
 
 </body>
 </html>
+logo auto deal timis lorys 
+poza cu masini 
+buton whatsapp
+numar 0787517436
+sectiune masini disponibile 
+buton suna acum
+
